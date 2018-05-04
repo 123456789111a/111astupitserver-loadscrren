@@ -1,2 +1,1 @@
-# 111astupitserver-loadscrren
-망함2
+병신같은 111a의 듣보잡 서버 홈페이지? 에 오신걸 환영안함.
